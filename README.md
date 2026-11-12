@@ -1,1 +1,0 @@
-# Sociolinguistic-Fieldwork-Project-Analysis
